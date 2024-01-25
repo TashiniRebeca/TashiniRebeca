@@ -11,4 +11,4 @@ I enjoy collaborating with like-minded individuals or teams on exciting projects
 
 _📫 How to Reach Me_ : 
 Email: tweerasooriya032@gmail.com
-LinkedIn: https://www.linkedin.com/in/tashini-rebeca-784003239/
+LinkedIn: https://www.linkedin.com/in/tashini-weerasooriya-784003239/
